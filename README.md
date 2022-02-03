@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @kobicalev
 - 👀 I’m interested in ... language acquisition and processing
-- 🌱 I’m currently learning ... hmmm
+- 🌱 I’m currently learning ... Tigrinya and Turkish
 - 💞️ I’m looking to collaborate on ... hmmm
 - 📫 How to reach me ... verbit-office-tlv
 
